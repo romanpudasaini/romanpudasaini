@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @romanpudasaini
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning More Coding
-- 💞️ I’m looking to collaborate with Sekhar
+- 💞️ I’m looking to collaborate with you
 - 📫 How to reach me Just Call me.
 
 <!---
